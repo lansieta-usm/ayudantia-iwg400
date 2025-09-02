@@ -4,13 +4,7 @@
 Esto es un readme dea
 parado parado paradise
 #fr 
-૮꒰ ˶• ༝ •˶꒱ა ♡
-⠀⠀⠀⠀⣀⡤⢤⣄⠀⣠⡤⣤⡀⠀⠀⠀
-⠀⠀⢀⣴⢫⠞⠛⠾⠺⠟⠛⢦⢻⣆⠀⠀
-⠀⠀⣼⢇⣻⡀⠀⠀⠀⠀⠀⠀⢸⡇⢿⣆⠀
-⠀⢸⣯⢦⣽⣷⣄⡀⠀⢀⣴⣿⣳⣬⣿⠀
-⢠⡞⢩⣿⠋⠙⠳⣽⢾⣯⠛⠙⢹⣯⠘⣷
-⠀⠈⠛⠃⠀⠀⠀⠀⠀⠀⠀⠀⠀⠙⠋⠁⠀⠀
+૮꒰ ˶• ༝ •˶꒱ა ♡  ≽^•⩊•^≼ ₊˚⊹♡
 + Alo? 
 - Soy yo el chupa
 + Que pasa hermano
